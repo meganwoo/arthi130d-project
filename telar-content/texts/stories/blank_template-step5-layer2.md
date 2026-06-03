@@ -4,4 +4,6 @@ title: "What is the significance of the lizard?"
 
 ![Lizard](https://meganwoo.github.io/arthi130d-project/iiif/objects/qq5/qq5.jpg)
 
+Source:  McClelland, Donnan. 1997.
+
 In this particular case, the vessel may have been meant for everyday use, due to its simplistic design. The lizards depicted may be present to reflect that of the Moche diet and little else, however the lizards themselves may be significant. The lizards depicted likely represent a lizard called Cananes. These lizards are known for eating a fruit called algarrobo, a food that is not appetizing to the human palate but is very suitable for the lizard. The Moche and other Northern Peruvian cultures knew the fruits were nutritionally beneficial, and by eating the lizard those benefits were passed onto them. Perhaps this vessel was in everyday use and the lizards were nutritionally significant enough to put on the pot. Something relevant to the everyday, represented through Moche art.
